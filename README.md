@@ -5,3 +5,5 @@
 [cute goats](https://www.dreamstime.com/photos-images/baby-goats.html)
 ## goat song
 [goat song here](https://www.youtube.com/watch?v=oHkqamFRTKI)
+## cartoon goats
+[cartoon goats here](https://www.dreamstime.com/illustration/cartoon-goat.html)
